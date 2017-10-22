@@ -49,3 +49,45 @@
 - Get a man older than 50 to buy you a beer and chug it in their face **(+15)**
 - Get a woman over 50 to buy you a shot **(+15)**
 - Make out with someone over the age of 30 **(+30) (+1/year over 30)**
+
+### KOK
+- Flash the bouncer **(+15/team member)**
+- Do that stupid ass claw game **(+5)**
+- Win that stupid ass claw game **(+10)**
+- Steal and chug a drink from another table **(+10)**
+- Order a round of blowjob shots and take them as suggested **(+10)**
+- Long Island power chug **(+5)**
+- Sit in a circle and play duck duck goose on the patio **(+15) **(+30 if raining)**
+- Drink a tequila shot through a straw **(+10)**
+- 2 team members wheelbarrow from Roys to Upstairs **(+10)**
+- At least 3 team members put their shirt on the Indian and take a picture wiht him **(+20)**
+
+### Upstairs
+- Staple underwear to ceiling **(+5) (+15 if done by a male)**
+- BODY SHOTS **(+10/shot)**
+- Complain that you hate upstairs **(-20)**
+- Get the pizza guy's number in front of Upstairs **(+5)**
+- Chug an AMF **(+5/team member)**
+- Take a Scooby Snack Shot **(+5)**
+- Add a stylistic bathroom penis drawing **(+5)**
+- Play another team in darts and win **(+10 per win) (-10 per loss)**
+
+###Brother's BnG
+- Entire team stands on first floor stage **(+5)**
+- Team member slides down the bannister **(+10)**
+- Someone urinates off the deck **(+15)**
+- Get on stage and reenact the opening of the lion king **(+30)**
+- Team shot ski **(+10)**
+- Human Pyramid picture in front of brothers **(+5) (+15 if a male is on top)**
+
+### Sports
+- ENDURANCE BONUS **(+5 for every team member still trucking)**
+- All out legs in the air power twerking in the jungle **(+15)**
+- Crash someone's VIP table party **(+10)**
+- Tell the DJ to play Free Bird **(+5)**
+- Actually get the DJ to play Free Bird **(+40)**
+- Team creates long grind line in the jungle **(+20)**
+- Close down sports **(+25/team member)**
+
+### Nightmoves
+#### +100
