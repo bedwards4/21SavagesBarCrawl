@@ -90,7 +90,7 @@
 - Human Pyramid picture in front of brothers **(+5) (+15 if a male is on top)**
 
 ### Sports
-- **ENDURANCE BONUS (+5 for every team member still trucking)You are day men/women, fighters of the night man, champions of the sun, you're masters of karate and friendship for everyone**
+- **ENDURANCE BONUS (+5 for every team member still trucking) You are day men/women, fighters of the night man, champions of the sun, you're masters of karate and friendship for everyone**
 - All out legs in the air power twerking in the jungle **(+15)**
 - Crash someone's VIP table party **(+10)**
 - Tell the DJ to play Free Bird **(+5)**
