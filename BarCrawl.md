@@ -51,7 +51,7 @@
 - Steal a Sink the Biz Cup **(+10/cup)**
 - Steal a pint glass **(+10/glass)**
 - Drink a pitcher of beer as a team **(+5/pitcher)**
-- Join someone else's name of Sink the Biz **(+20) (+30 for randos)**
+- Join someone else's game of Sink the Biz **(+20) (+30 for randos)**
 - Get a man older than 50 to buy you a beer and chug it in their face **(+15)**
 - Get a woman over 50 to buy you a shot **(+15)**
 - Make out with someone over the age of 30 **(+30) (+1/year over 30)**
