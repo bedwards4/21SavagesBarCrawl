@@ -27,6 +27,7 @@
 - Steal Jaeson's Amex and buy a shot with it **(+5)**
 - Somersault into a bar **(+5)**
 - Take a picture with 3+ gingers in it **(+15)**
+- Moon a car **(+40)**
 
 
 ### Misc Deductions
@@ -103,6 +104,7 @@
 - Take a redheaded slut shot with a red headed slut **(+10)**
 - Take a pair of underwear and wear it **(+20)**
 - Steal a roll of toilet paper **(+5)**
+- Motorboat a stranger (remember guys, consent is hot) **(+20)**
 
 ### Brother's BnG
 - Entire team stands on first floor stage **(+5)**
